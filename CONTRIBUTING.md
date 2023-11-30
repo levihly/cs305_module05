@@ -8,4 +8,4 @@ Be nice.
 Links coming soon.
 
 ## Contributors
-Coming soon.
+Kayleigh Rusk
